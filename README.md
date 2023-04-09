@@ -1,2 +1,0 @@
-# Nandini-Jain
-My portfolio
